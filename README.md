@@ -2,4 +2,4 @@
 
 nlp ceo
 
-📫 How to reach me: telegram @nikitabalagansky
+📫 How to reach me: telegram @nlp_ceo
